@@ -16,7 +16,11 @@ Neuro Surge is a **dietary supplement designed to support cognitive function, me
 
 The supplement is marketed toward individuals experiencing **age-related memory decline**, **brain fog**, or those simply looking to enhance their mental performance. Unlike synthetic nootropics, which may have harsh side effects, Neuro Surge focuses on **natural ingredients** that support the brain in a balanced, sustainable way.
 
-
+<p align="center">
+  <a href="https://145aa8mkx0m3fvefre-7vp2u9c.hop.clickbank.net">
+    <img src="https://i.imgur.com/rGPJ6UX.png" width="370">
+  </a>
+</p>
 
 [**Discover how** Neuro Surge **can help.** Visit the official website now!](https://145aa8mkx0m3fvefre-7vp2u9c.hop.clickbank.net)
 
