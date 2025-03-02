@@ -238,7 +238,7 @@ By combining **Neuro Surge with these habits**, you **optimize your brain’s ab
   </a>
 </p>
 
-## [Visit the official Neuro Surge website now! Click here.](https://145aa8mkx0m3fvefre-7vp2u9c.hop.clickbank.net)
+** [Visit the official Neuro Surge website now! Click here.](https://145aa8mkx0m3fvefre-7vp2u9c.hop.clickbank.net)
 
 ## ****How Long Should You Take Neuro Surge for Best Results?****
 
